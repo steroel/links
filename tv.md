@@ -1,5 +1,11 @@
 # TV Online
 
+## Deutsch
+
+https://terrax-cc.zdf.de
+
+https://www.zdf.de/funk/mrwissen2go-8423
+
 ## Russisch
 
 [[ТНТ4](https://ok.ru/live/979125083771)]
