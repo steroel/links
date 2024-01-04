@@ -3,8 +3,8 @@
 ## Deutsch
 
 https://terrax-cc.zdf.de
-
 https://www.zdf.de/funk/mrwissen2go-8423
+https://www.planet-wissen.de/index.html
 
 ## Russisch
 
